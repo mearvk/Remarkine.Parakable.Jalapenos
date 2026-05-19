@@ -10,9 +10,9 @@ $${\color{red} \textsf{Parakable:} }$$ Able to Suit and Ably Suit that Lifes Del
   
 $${\color{red} \textsf{Jalapenos:} }$$ Constitines of Able Delicious that due Suit and Suits constitianines of Able delicious; suiting from Delicious
   
-> **Seeletings:** Couple ables Aspectsments of Times Causes; ableBodies Mans a men Who did Died delicious
+$${\color{red} \textsf{Seeletings:} }$$ Couple ables Aspectsments of Times Causes; ableBodies Mans a men Who did Died delicious
   
-> **Constitines:** Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
+$${\color{red} \textsf{Constitines:} }$$ Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
 
 <br>
 

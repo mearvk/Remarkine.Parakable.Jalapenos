@@ -1,5 +1,7 @@
 # RemarkineParakableJalapenos
 
+**US Congress' Congressional Pearings Reviews or Torts Commanders of Congresional Hearings thus 44a a 44a did Not Disappoint**
+
 <br>
 
 **Remarkine:** Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles

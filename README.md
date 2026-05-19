@@ -18,7 +18,7 @@ $${\color{darkgreen} \textsf{Ahem:} }$$ $\small \text{Brunettes Parrables and Sl
 
 **US Congress' Congressional Pearings Reviews or Torts Commanders of Congresional Hearings thus 44a a 44a did Not Disappoint**
 
-$\small \text{Therefore of Applied Telepheoniorghronics (Natures and Sides of Sides of Science Debates) That Man did Not Have a License to Injgentitsure}$ $/small /text{(to Practice Domain without Therapy).}$
+$\small \text{Therefore of Applied Telepheoniorghronics (Natures and Sides of Sides of Science Debates) That Man did Not Have a License to Injgentitsure}$ $\small \text{(to Practice Domain without Therapy).}$
 
 $\small \text{Therefore of Healing Arts only Sole Domains risksed Aspectss.}$
 

@@ -4,13 +4,13 @@
 
 $${\color{red} \textbf{Remarkine:} }$$ Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles
   
-$${\color{red} \textsbf{Parakable:} }$$ Able to Suit and Ably Suit that Lifes Delicious And Prayables are Net Constitines of Net Decisions of Net Parakables and Seeletings of the US Supreme Ct.
+$${\color{red} \textbf{Parakable:} }$$ Able to Suit and Ably Suit that Lifes Delicious And Prayables are Net Constitines of Net Decisions of Net Parakables and Seeletings of the US Supreme Ct.
   
-$${\color{red} \textsbf{Jalapenos:} }$$ Constitines of Able Delicious that due Suit and Suits constitianines of Able delicious; suiting from Delicious
+$${\color{red} \textbf{Jalapenos:} }$$ Constitines of Able Delicious that due Suit and Suits constitianines of Able delicious; suiting from Delicious
   
-$${\color{red} \textsbf{Seeletings:} }$$ Couple ables Aspectsments of Times Causes; ableBodies Mans a men Who did Died delicious
+$${\color{red} \textbf{Seeletings:} }$$ Couple ables Aspectsments of Times Causes; ableBodies Mans a men Who did Died delicious
   
-$${\color{red} \textsbf{Constitines:} }$$ Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
+$${\color{red} \textbf{Constitines:} }$$ Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
 
 **Ahem:** Brunettes Parrables and Slaves ala 5th Aves and Marndanices of FiveSlaves Sundays and Bredddy Weddings
 

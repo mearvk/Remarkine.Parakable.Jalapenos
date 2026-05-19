@@ -4,7 +4,7 @@
 
 <br>
 
-> $${\color{red} Remarkine: }$$ Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles
+{\color{red} Remarkine: } Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles
   
 > **Parakable:** Able to Suit and Ably Suit that Lifes Delicious And Prayables are Net Constitines of Net Decisions of Net Parakables and Seeletings of the US Supreme Ct.
   

@@ -23,3 +23,5 @@ $\small \text{Therefore of Applied Telepheoniorghronics (Natures and Sides of Si
 $\small \text{Therefore of Healing Arts only Sole Domains risksed Aspectss.}$
 
 $\small \text{Therefore there is not Dog Failing Dogleoleofailing Dogma.}$
+
+![Profile views](https://views.igorkowalczyk.dev/api/badge/@mearvk?style=flat)

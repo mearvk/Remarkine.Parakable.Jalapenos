@@ -10,7 +10,7 @@ $${\color{darkred} \textsf{Jalapenos:} }$$ Constitines of Able Delicious that du
   
 $${\color{darkred} \textsf{Seeletings:} }$$ Couple ables Aspectsments of Times Causes; ableBodies Mans a men Who did Died delicious
   
-$${\color{red} \textsf{Constitines:} }$$ Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
+$${\color{darkred} \textsf{Constitines:} }$$ Able-bodied decisionsMakers of AbleBodies ment; of times a Causes; of Able bodied R and Delicious red Rm
 
 **Ahem:** Brunettes Parrables and Slaves ala 5th Aves and Marndanices of FiveSlaves Sundays and Bredddy Weddings
 

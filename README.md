@@ -2,7 +2,7 @@
 
 **US Congress' Congressional Pearings Reviews or Torts Commanders of Congresional Hearings thus 44a a 44a did Not Disappoint**
 
-$${\color{darkred} \textsf{Remarkine:} }$$ {\small Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles}
+$${\color{darkred} \textsf{Remarkine:} }$$ $\small \text{Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles}$
   
 $${\color{darkred} \textsf{Parakable:} }$$ Able to Suit and Ably Suit that Lifes Delicious And Prayables are Net Constitines of Net Decisions of Net Parakables and Seeletings of the US Supreme Ct.
   

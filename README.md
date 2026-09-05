@@ -1,5 +1,13 @@
 # Remarkine Parakable Jalapeños
 
+## Bitcoin Conjegeum
+
+![](https://github.com/mearvk/Ubuntu.Determinant.Beta.Restricted/blob/main/images/Bitcoin_and_wallet_in_slots_2K_202609042306%20(1).jpeg)
+
+bc1qs6v4q9zsw70t0umk3m0quhvf9dr6cdeskl28dh
+
+US Democratic and US Policy.
+
 **US Congress' Congressional Pearings Reviews or Torts Commanders of Congresional Hearings thus 44a a 44a did Not Disappoint**
 
 $${\color{darkred} \textsf{Remarkine:} }$$ $\small \text{Able and Able to Continue and to Continue as Cause but to Remain Fresh and Dogmatic like Life and Principles}$   
